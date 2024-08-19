@@ -1,6 +1,6 @@
 # 蚯蚓机场官网地址
 
-最新地址：[qiuyin.icu](https://qiuyinjichang.com/me#/register?code=w7v7P6IC)
+最新地址：[qiuyin.icu](https://qiuyin.app/me#/register?code=w7v7P6IC)
 
 ## 蚯蚓机场介绍
 
